@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. Sleep
+2. Anime
+3. Lucy the pupper 
+   1. Sweet girl
+   2. Demon child
